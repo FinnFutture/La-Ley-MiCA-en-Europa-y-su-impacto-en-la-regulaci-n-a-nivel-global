@@ -1,1 +1,5 @@
-# La-Ley-MiCA-en-Europa-y-su-impacto-en-la-regulaci-n-a-nivel-global
+# La-Ley-MiCA-en-Europa-y-su-impacto-en-la-regulación-a-nivel-global
+La regulación de la criptomoneda ya es un hecho en Europa; a poco de su implementación ya se puede predecir su impacto. 
+La inserción de los criptoactivos en la nueva era de las finanzas generó un gran cambio debido a la gran adaptación de su uso. Esta transformación digital es acompañada por una volatilidad considerable y un marco regulatorio fragmentado. Por ello, la aprobación de la Ley de Mercados de Criptoactivos (MiCA) en Europa. 
+En diciembre de 2024 entró en vigor. Con esta legislación se busca establecer reglas claras para la emisión, comercialización y supervisión de criptoactivos, posicionando a la UE como una de las primeras grandes jurisdicciones en establecer una regulación integral.
+Pese a que la Ley MiCA está en vigencia en Europa, su implementación podría redefinir el mercado global de criptoactivos y establecer un precedente que otras economías adopten. Nuevamente, la digitalización muestra su impacto. El especialista Fernando Boudourian indica que estas innovaciones  están transformando tanto la banca privada como la relación con los clientes.
